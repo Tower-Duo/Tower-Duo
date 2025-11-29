@@ -3,7 +3,7 @@ please use tone tags.
 hello hello!! we are a system and a minor so be aware of that X_^ we play roblox and vrc
 
 
-![Image](https://github.com/user-attachments/assets/e2ea9c65-25f7-4b09-941e-369a2861e90a)
+![Image](https://github.com/user-attachments/assets/d2e56cf4-736c-425d-9f95-18fbe4c2e4eb)
 
 
 C+H, W2I, INT, DNCOPY, AND DO NOT TAKE INSPO FROM ANY OF US THAT HAVE FICT IN THE NAME.
@@ -18,9 +18,6 @@ I Don't Bite Unless You Want Me To, I Don't Mind Talking To People! Feel Free To
 at the moment only: Zephyr, Fluix/Ender, Scott/Atlas. plays pony town!
 
 
-![Image](https://github.com/user-attachments/assets/53c59e8c-057c-49fa-8cd6-2220e826f378)
-
-im a really heavy scott kin
 
 
 <!--
